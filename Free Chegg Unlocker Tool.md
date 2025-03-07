@@ -1,4 +1,4 @@
-# **Chegg Unlocker**
+# **Free Chegg Unlocker Tool**
 
 Chegg is one of the leading online education platforms, providing students with a wide range of academic resources, including textbooks, study guides, and expert solutions to problems. While many students rely on Chegg for homework help, the platform often locks premium solutions behind a paywall, making it difficult for some to access the resources they need.
 
